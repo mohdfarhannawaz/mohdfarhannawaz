@@ -1,3 +1,1 @@
-Hi,
-I am Mohd Farhan Nawaz 
-Currently I am pursuing my B.Tech degree in C.S.E.
+🚀 Full-stack development 📚 DSA  💻 Open source contributor 🤝 Community building  👨‍💻Technical Writer 🎬 Content Creation🫂 Learning & Empowering Others
